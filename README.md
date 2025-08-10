@@ -1,1 +1,1 @@
-i'm syntaxapproval
+win1999.neocities.org
